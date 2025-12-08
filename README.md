@@ -1,9 +1,9 @@
 # gigigoatgigi
 
-https://linkbin.com/4ycVFJw3yxWg
-https://linkbin.com/4ycVFJw3yxWg
-https://linkbin.com/4ycVFJw3yxWg
-https://linkbin.com/4ycVFJw3yxWg
-https://linkbin.com/4ycVFJw3yxWg
-https://linkbin.com/4ycVFJw3yxWg
-https://linkbin.com/4ycVFJw3yxWg
+https://www.fragbin.com/p/VXSUL
+https://www.fragbin.com/p/VXSUL
+https://www.fragbin.com/p/VXSUL
+https://www.fragbin.com/p/VXSUL
+https://www.fragbin.com/p/VXSUL
+https://www.fragbin.com/p/VXSUL
+https://www.fragbin.com/p/VXSUL
